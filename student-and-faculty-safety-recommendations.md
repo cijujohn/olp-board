@@ -1,6 +1,6 @@
 # Student and Faculty Safety Recommendations
 
-## OLP School Board Meeting
+## Our Lady of Pillar (OLP) School Board
 
 ## Safety Categories
 
